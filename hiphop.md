@@ -1,12 +1,12 @@
-We gonna prove once and for all that all these people talking bout a East Coast West Coast war they like the Juda's was to Jesus
-They only here to cause confusion. We here to bring money and to bring change. They here to bring confusion
-All these weak rappers Nas and all these suckaz they battling off East and West like it's a game. This ain't no game
-If this was chess, we'd be yelling checkmate three muthafuckin' years ago. Cuz we been beat these muthafuckaz
+We gonna prove once and for all that all these people talking bout a East Coast West Coast war they like the Judas was to Jesus.
+They only here to cause confusion. We here to bring money and to bring change. They here to bring confusion.
+All these weak rappers Nas and all these suckaz they battling off East and West like it's a game. This ain't no game.
+If this was chess, we'd be yelling checkmate three muthafuckin' years ago. Cuz we been beat these muthafuckaz.
 
 Mr., Makaveli movin' pieces like telekinesis
 It's like a chess game, let's play wit' real pieces
 
-**PACs hologram is more real than most rappers today**
+- PAC's hologram is more real than most rappers today.
 
 Hey mister prankster, prankster, story book gangsta
 Back in '86 you wore the pumps and mascara
